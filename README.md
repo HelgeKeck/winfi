@@ -1,1 +1,1 @@
-DOwnloads are under releases
+Downloads are under releases
